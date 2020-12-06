@@ -1,6 +1,6 @@
 # Tazmyla Fireforge | [Character Sheet](https://ddb.ac/characters/39827951/QKQpOt) | [Back Story](back_stories/tazmyla_fireforge.md)
 
-Tazmyla Fireforge (she/her) is a 4 foot 8 mountain dwarf.
+Tazmyla Fireforge ♀️ is a 4 foot 8 mountain dwarf.
 Her emerald-green eyes feel like they are staring into the depths of your soul, while her amber hair waving in the wind calms you down in a most profound manner.
 A most perplexing mixture of pain and joy glimmers in her eyes.
 Although she does not speak to you, you hear the story she is telling loud and clear...
