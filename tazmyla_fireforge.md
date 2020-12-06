@@ -12,7 +12,7 @@ She joined this campaign on 05.12.2020.
 
 ### Die Ernsthaftigkeit des Sommers
 
-During her travels in this campaign, Tazmyla encountered the follow **NPCs**:
+During her travels in this campaign, Tazmyla encountered the following **NPCs**:
 
 * Mountain Dwarf Trader at the Muckley harbor
 * The Elven leader of the Watch at Muckley and hist two guards
@@ -31,7 +31,7 @@ During her travels in this campaign, Tazmyla encountered the follow **NPCs**:
     * Swong was hit the most (almost every chance the creature had), having head several close calls.
     * Tazmyla fed Swong her health potion
 
-During her travels in this campaign, Tazmyla encountered the follow **PCs**:
+During her travels in this campaign, Tazmyla encountered the following **PCs**:
 
 * A High-Elf called *Eladriel* ♂️ who is a master of [Bladesinging](https://www.dndbeyond.com/classes/wizard#Bladesinging).
   * First met in Muckley.
