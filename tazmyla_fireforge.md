@@ -32,7 +32,10 @@ While she does not speak, you hear the story she is telling loud and clear...
 
 ## Back Story
 
-> **SPOILER ALERT** This is the back story of Tazmyla. Unless you don't plan on having her in a party with you, I suggest you stop reading here and that you try to find out all about her in a campaign.
+> **SPOILER ALERT** This is the back story of Tazmyla.
+> Unless you don't plan on having her in a party with you, I suggest you stop reading here and that you try to find out all about her in a campaign.
+> Still, you might want to look at the campaigns Tazmyla participated in by jumping to [Campaigns and Adventures](#campaigns-and-adventures)
+
 
 Born as the daughter of a blacksmith father and a jewel mother, Tazmyla grew up in a small mountain village.
 Her childhood was rather ordinary.
