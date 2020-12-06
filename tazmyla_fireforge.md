@@ -72,6 +72,7 @@ During her travels in this campaign, Tazmyla encountered the following **PCs**:
 * *Seebo Rickar Gerbi **Swong** Hazun* ♂️, a Gnome Fighter, who seems to be quite paranoid.
   * First met in Muckley.
   * Shortest member of the party
+  * Took a lot of damage during the showdown in the forest
 
 #### Muckley
 
@@ -88,10 +89,19 @@ He promised to pay each member of the party **80GP**, if the manage to return th
 Tazmyla scoffed at Plätsch and ??? who tried to bargain up the reward.
 The head of the watch agreed to extend the reward to a stay of two or three days an Inn (food and drinks included).
 
-#### The Forest 
+#### Old Pirate Ship
 
 Upon entering the forest, the party stumbled upon an old pirate ship.
 Tazmyla detected a number of footprints (small animals as well as **humanoid**) around the ship.
 Without much hesitation, Arnall entered the ship, just to be attacked by something he could not see.
 As it turned out, there were three zombies hiding (most likely the old crew of the ship), hiding out inside the body of the ship.
 Naturally, a battle ensued in which Tazmyla managed to take down her first opponent, stabbing one of the zombies in its head using her dagger.
+In the remains of the battle, the party found five healing potions.
+Additionally, Tazmyla managed to find **50SP**.
+Eladriel sent out his familiar in order to scout the area around the ship, however, due to the (possibly) magical nature of the winter in the forest, *Archibald* did not spot anything.
+??? used their perception to try and find out more about the difficulties the party had in the forest.
+They managed to feel that the party was being watched through the trees.
+Unfortunately, they were not able to figure out who/what was watching the party.
+
+#### Deeper Into the Forest
+
