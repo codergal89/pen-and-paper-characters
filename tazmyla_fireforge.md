@@ -1,9 +1,34 @@
 # Tazmyla Fireforge | [Character Sheet](https://ddb.ac/characters/39827951/QKQpOt) | [Back Story](back_stories/tazmyla_fireforge.md)
 
 Tazmyla Fireforge ♀️ is a 4 foot 8 mountain dwarf.
-Her emerald-green eyes feel like they are staring into the depths of your soul, while her amber hair waving in the wind calms you down in a most profound manner.
+Despite having her head tilted slightly downward, her emerald-green eyes feel like they are staring into the depths of your soul, while her amber hair waving in the wind calms you down in a most profound manner.
 A most perplexing mixture of pain and joy glimmers in her eyes.
-Although she does not speak to you, you hear the story she is telling loud and clear...
+You are not quite sure if she is smiling or confused.
+
+Despite being made from thick cloth, most likely some kind of cotton or wool, the long skirt, covering her legs, waves ever so slightly in the wind.
+It is framed by a dark blue border, made from the same material.
+The rounded tips of her thick leather boots, peak out from beneath this cozy looking skirt.
+Her arms are covered in long sleeves, made from the same material as her skirt, reaching all the way to her wrists.
+She seems to generally dress in subdued colors, mostly dark gray and slate, yet you can make out some more vibrant accents on her clothes.
+The pouch she is wearing on her fabric belt is made of dark and well worn leather, bound with a light lavender cord.
+You suspect the cord to be same used to bind a piece of light gray fur around her neck and over her shoulders.
+The eyes through which the cord is threaded look like they are made from gold.
+Her hands are partially covered by dark, woolen, finger less gloves.
+You are drawn to the gold ring, she is wearing over the glove, on her right hand, in which is embedded a large, sharply faceted ruby.
+
+You notice the skin of her fingers is worn, especially on the inside, her fingerprints almost completely rubbed away.
+Even though you cannot be sure without asking her yourself, but it seem as though she mainly works with her hands.
+
+Around her hip is wrapped a light gray cloth belt, accented with strips of the same dark blue material framing her skirt.
+A dagger is bound to it at her right hip.
+Its blade is made from a dark, yet shiny metal, shaped like a flame, flowing down into a brass hand guard.
+The stock of the weapon is wrapped in dark brown leather, ending in a large, soft, drop shaped piece of sapphire.
+Opposite of the dagger, a leather quiver is attached to her belt, containing the arrows for the wooden short-bow strapped to her back.
+A triangular piece of dark blue cloth is bound around her upper right arm.
+From its shape and size, you guess that she uses it as face mask when traveling through harsher climates, most likely in combination with the hood hanging over her short-bow.
+Her chest and shoulders are protected by armor, made from light brown leather, outlined in the same dark leather making up her pouch.
+
+While she does not speak, you hear the story she is telling loud and clear...
 
 ## Campaigns and Adventures
  
