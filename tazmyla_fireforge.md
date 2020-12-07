@@ -190,3 +190,18 @@ Unfortunately, they were not able to figure out who/what was watching the party.
 
 #### Deeper Into the Forest
 
+Continuing deeper into the forest, the party came upon a small campsite, in which a Drow ♂️ was sitting besides a small campfire.
+Surrounding the campsite were several, what seemed to be, statues made of ice.
+??? and ??? approached the Drow and tried to engage with him.
+At the same time, Tazmyla took a closer look at the statues, determining them to not in fact be actual statues.
+The Drow was just giggling and murmuring to himself, while drawing on a piece of paper.
+??? tried to intimidate the him but failed, causing the Drow to laugh at them.
+A little heated by the laughter ??? tried to also intimidate the Drow and succeeded, causing him to run away into the forest.
+With the Drow gone, ??? and ??? rummaged through his belongings, uncovering a diary, some "used" tissues, and a erotic picture of a female Drow.
+Reading through the diary, ??? figured out that the original owner was hiding out here in the forest, feeling rejected by his people.
+Arnall expressed his strong disapproval with ??? and ??? going through the Drow's belongings.
+??? dugg a little deeper around the campsite but found only some rotting remains of food.
+Tazmyla tried to stealthily snatch the picture but was found out by the rest of the party, all of which silently expressed the confusion and disgust.
+Braking the uncomfortable silence, ??? approached Tazmyla and inquired her to clarify what she meant by saying that the statues are not actual statues.
+She explained that, despite them *looking* like statues, there where neither tool marks nor any other signs of them having been constructed.
+Fascinated, and slightly unsettled, by her explanation, the party continued onward, deeper into the forest.
