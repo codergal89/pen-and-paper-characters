@@ -61,7 +61,7 @@ Every free minute, she did not have to help out her mother at their market stand
 They talked about everything, as though they had known each other since childhood.
 Almost everything.
 
-Each time Tazmyla and her mother returned to this city, she spent most of her time Armera.
+Each time Tazmyla and her mother returned to this city, she spent most of her time with Armera.
 After every single time meeting Armera, Tazmyla promised herself, that one day she would have the courage to talk to Armera about what she felt.
 Next time..., next time for certain.
 
