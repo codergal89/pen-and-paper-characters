@@ -23,7 +23,7 @@ Suddenly it seems obvious to you... she is one of those tinkerers... wait what d
 You step closer and start asking her about her magi-mechanical inventions...
 
 ## Backstory
-> **SPOILER ALERT** This is the back story of Tazmyla.
+> **SPOILER ALERT** This is the back story of Tarsi.
 > Unless you don't plan on having her in a party with you, I suggest you stop reading here and that you try to find out all about her in a campaign.
 
 Being ousted in most of Faerûn, Tarsis family spent the majority of time traveling between different cities during her childhood years.
