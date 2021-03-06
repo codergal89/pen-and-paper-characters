@@ -1,4 +1,4 @@
-# Tazmyla Fireforge | [Character Sheet](https://ddb.ac/characters/39827951/QKQpOt)
+# Tazmyla Fireforge | [Character Sheet](https://ddb.ac/characters/43557636/zeugGx)
 
 Tazmyla Fireforge ♀️ is a 4 foot 8 mountain dwarf.
 Despite having her head tilted slightly downward, her emerald-green eyes feel like they are staring into the depths of your soul, while her amber hair waving in the wind calms you down in a most profound manner.

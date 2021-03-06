@@ -1,4 +1,4 @@
-# Tarsi Riverroot | [Character Sheet](https://ddb.ac/characters/43703969/kKD25I)
+# Tarsi Riverroot | [Character Sheet](https://ddb.ac/characters/43703969/Xt5LzU)
 
 You see a 5 foot 11 human ♀️ of average build in front of you.
 Her shoulder-long, light auburn hair is neatly bound into a smoothly flowing ponytail.
