@@ -1,23 +1,26 @@
-# Tarsi "Flamechild" | [Character Sheet](https://ddb.ac/characters/43703969/kKD25I)
+# Tarsi Riverroot | [Character Sheet](https://ddb.ac/characters/43703969/kKD25I)
 
-Tarsi "Flamechild" ♀️ is a 5 foot 11 tiefling.
-The moon-light lets her silver eyes shine through the night as if they were small, colds moons themselves, providing a stark contrast to her dark purple skin.
-A deep scar running from above her left eye, down to her cheek catches your eyes.
-Her curled horns blackish-purple horns have seen better days as is obvious from the numerous dents along them.
-You feel as though she might have used them to break through more than wall.
-Long dark-gray hair falls on her shoulders as she scrutinizes you from head to toe.
-Instinctively you place your hand closer to your dagger...
+You see a 5 foot 11 human ♀️ of average build in front of you.
+Her shoulder-long, light auburn hair is neatly bound into a smoothly flowing ponytail.
+The moon-light glitters on her pale blue eyes, radiating a ghostly aura which stands in stark contrast to her amber skin.
+A deep scar, running from above her left eye, down to her cheek, catches your eyes.
+She smiles at you, inviting you to have a chat.
 
-Partially hidden beneath an indigo vest, a light-gray (or maybe just dirty white?) blouse covers her chest and arms, the puffy sleeves being tightly bound on her wrists.
-The ring, embedded into which is a sharply faceted ruby, seems to small to fit her hands.
+Partially hidden beneath an indigo vest, an ivory colored blouse covers her chest and arms, the puffy sleeves tightly bound around her wrists.
+You are not sure as to whether or not the blouse used to be white.
+Around her neck, she carries a simple silver chain, onto which a golden ring is threaded.
+A sharply faceted ruby is expertly inlaid into the the ring, which seems to be be too small to fit her hands.
 If you would need to make a guess, you would say it was made to fit a dwarf.
 A black leather belt binds long, loosely fitting indigo pants to her hips.
 She wears them stuffed into worn, black leather boots, bound using lavender laces, threaded through brass eyelets.
-Attached to her belt, on the left side, were some a small, rectangular leather pouches.
-On the opposite side she carried a sheathed dagger, adorned with a large large, drop shaped piece of sapphire.
+Attached to her belt, so see a number of tools, some of which you cannot even begin to guess what they are used for.
+On her left, a multitude of small pouches and a pair of thick leather gloves dangle, attached to two light brown leather straps that are bound around her thigh.
+Bound around her right thigh, you notice a single dark brown leather strap, studded with 5 brass eyelets.
+Attached to one of the eyelets, using what looks to be the same lavender string used to lace her shoes, is a simple sheathed dagger.
 
-Upon closer inspection, you notice, she is not wearing any armor.
-You are starting to believe, that maybe she is not as dangerous as you initially believed... maybe she just wants to keep away those she does not know yet...
+Upon closer inspection, you notice some small cuts, burns, and calluses on her hands.
+Suddenly it seems obvious to you... she is one of those tinkerers... wait what do people call them... Ah! Artificers!
+You step closer and start asking her about her magi-mechanical inventions...
 
 ## Backstory
 > **SPOILER ALERT** This is the back story of Tazmyla.
