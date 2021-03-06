@@ -26,10 +26,13 @@ You step closer and start asking her about her magi-mechanical inventions...
 > **SPOILER ALERT** This is the back story of Tarsi.
 > Unless you don't plan on having her in a party with you, I suggest you stop reading here and that you try to find out all about her in a campaign.
 
-Being ousted in most of Faerûn, Tarsis family spent the majority of time traveling between different cities during her childhood years.
+> **NOTE** The backstory is currently incomplete and inconsistent.
+> This is (partly) due to the fact that Tarsi, in her original design, used to be a tiefling.
+
+Tarsi's family spent the majority of time traveling Faerûn her childhood years.
 She did not understand why, and her mother, Aragrea, put a lot of effort into keeping it that way.
 They ultimately settled down in the Dock Ward of Waterdeep, where her parents found any number of odd, and sometimes shady, jobs to make a living.
-However, being a city of over a million inhabitants, Tarsis mother found it impossible to shield her from the truth any longer.
+However, being a city of over a million inhabitants, Tarsi's mother found it impossible to shield her from the truth any longer.
 They were different, and people let them know.
 
 Being the oldest of three children, Tarsi started working at the age of 11 in order to support her parents and give them some room to breathe.
