@@ -26,14 +26,10 @@ You step closer and start asking her about her magi-mechanical inventions...
 > **SPOILER ALERT** This is the back story of Tarsi.
 > Unless you don't plan on having her in a party with you, I suggest you stop reading here and that you try to find out all about her in a campaign.
 
-> **NOTE** The backstory is currently incomplete and inconsistent.
-> This is (partly) due to the fact that Tarsi, in her original design, used to be a tiefling.
-
 Tarsi's family spent the majority of time traveling Faerûn her childhood years.
-She did not understand why, and her mother, Aragrea, put a lot of effort into keeping it that way.
+Her parents were always very protective of Tarsi, trying to shield her from any hardships.
 They ultimately settled down in the Dock Ward of Waterdeep, where her parents found any number of odd, and sometimes shady, jobs to make a living.
-However, being a city of over a million inhabitants, Tarsi's mother found it impossible to shield her from the truth any longer.
-They were different, and people let them know.
+However, being a city of over a million inhabitants, Tarsi's mother found it ever more difficult to shield her daughter from the fact that they were barely scraping by.
 
 Being the oldest of three children, Tarsi started working at the age of 11 in order to support her parents and give them some room to breathe.
 She mostly worked in cleaning decks on ships that had anchored at Waterdeep.
@@ -45,8 +41,16 @@ She knew however, that her family relied on her contributions, keeping the dream
 Several years went by, every day being filled with the same routine.
 That was why she was utterly surprised when, on the night of 19th birthday, her parents came to her small little room and sat down on her simple straw bed.
 They had an unusually serious expression on their faces.
-Aragrea explained to her, that they knew of her desire to find her own place in the world.
+Her mother explained to her, that they knew of her desire to find her own place in the world.
 Apparently, her parents had often overheard Tarsi talking in her sleep, about places she imagined out in the world.
+Tarsi was torn between helping her parents and brothers on one hand and her burning desire to explore the Faerûn.
+She took some time to discuss her feelings with her parents, making sure they and her brothers would be o.k.
+In the end, her desire for exploration took over and with a heavy heart, Tarsi went out to find her own way in life.
+
+One of her first destinations was the city of Muckley, between Neverwinter and Luskan.
+Talking to the inhabitants, Tarsi learned that the city had recently been freed from an internal winter that had been imposed by a crazed wizard.
+Wandering around the town and searching for a place to sleep, Tarsi stumbled into the local inn.
+
 
 [SOMEHOW TARSI WENT OUT TRAVELING THE SWORD COAST BEFORE "Poisoned Skies"]
 
